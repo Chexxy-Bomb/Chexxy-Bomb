@@ -4,4 +4,8 @@
 <img src="https://i.ibb.co/7NtPfx6f/Untitled36-20260524225104.png" height="50" width="600"
 </p>
 <p align="center">
-<a href="https://ibb.co/Zz4MBwLL"><img src="https://i.ibb.co/CKCHbX11/Untitled31-20260524204227.png" alt="Untitled31-20260524204227" border="0"></a>
+<a href="https://ibb.co/Zz4MBwLL"><img src="https://i.ibb.co/CKCHbX11/Untitled31-20260524204227.png" alt="Untitled31-20260524204227" border=" 
+<p align="center">
+╭────────────୨ৎ────────────╮
+    🌸 sakura.log 🌸
+╰────────────୨ৎ────────────╯
