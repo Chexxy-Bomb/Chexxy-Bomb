@@ -6,6 +6,3 @@
 <p align="center">
 <a href="https://ibb.co/Zz4MBwLL"><img src="https://i.ibb.co/CKCHbX11/Untitled31-20260524204227.png" alt="Untitled31-20260524204227" border=" 
 <p align="center">
-╭────────────୨ৎ────────────╮
-    🌸 sakura.log 🌸
-╰────────────୨ৎ────────────╯
