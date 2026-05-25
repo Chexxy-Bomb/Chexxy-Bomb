@@ -22,6 +22,7 @@
 ✧ i am a slow typer since i tend to delete/re-do my sentences.
 
 ✧ DNI;; Harassers, Nsfw jokes {Nsfw anything really}, Country humans, LGBTQ+ hate/racism. i would block immediately 
+
 <img  src="https://i.ibb.co/7NtPfx6f/Untitled36-20260524225104.png"  width="600" height="50">
 </p>
 
