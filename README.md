@@ -15,9 +15,9 @@
 
 ✧ I am semi-verbal and would tend to talk more if i know/is comfy with you
 
-✧ Mostly alone but on occasion i'm with a friend/regiment
+✧ Often found alone, but on occasion i'm with a friend or regiment
 
-✧ Cuddles {Hiding} is ok, W2i for the most part since i'm not paying attention to my screen {Unless Dniuf/Dniuif tags}
+✧ Usually okay with quiet Cuddles {Hiding} interactions unless my tags {Dniuf/Dniuif} states otherwise
 
 ✧ i am a slow typer since i tend to delete/re-do my sentences.
 
