@@ -8,10 +8,9 @@
 <div align="center">
 
 ╭────────────୨ৎ────────────╮  
-　🎀 Ponytown.Info 🎀  
+　🎀 Ponytown.details 🎀  
 ╰────────────୨ৎ────────────╯
 
-</div>
 <p align="center">
 <a href="https://ibb.co/Zz4MBwLL"><img src="https://i.ibb.co/CKCHbX11/Untitled31-20260524204227.png" alt="Untitled31-20260524204227" border=" 
 <p align="center">
