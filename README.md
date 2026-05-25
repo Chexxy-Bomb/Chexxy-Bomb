@@ -8,9 +8,30 @@
 <div align="center">
 
 ╭────────────୨ৎ────────────╮  
-　🎀 Ponytown.details 🎀  
+　🎀 __Ponytown.details__ 🎀  
 ╰────────────୨ৎ────────────╯
 
+✧ Afk 24/7
+
+✧ I am semi-verbal and would tend to talk more if i know/is comfy with you
+
+✧ Mostly alone but on occasion i'm with a friend/regiment
+
+✧ Cuddles {Hiding} is ok, W2i for the most part since i'm not paying attention to my screen {Unless Dniuf/Dniuif tags}
+
+✧ i am a slow typer since i tend to delete/re-do my sentences.
+
+✧ DNI;; Harassers, Nsfw jokes {Nsfw anything really}, Country humans, LGBTQ+ hate/racism. i would block immediately 
+<img  src="https://i.ibb.co/7NtPfx6f/Untitled36-20260524225104.png"  width="600" height="50">
+</p>
+
+<div align="center">
+
+╭────────────୨ৎ────────────╮  
+　🎀 __Basic.details__ 🎀  
+╰────────────୨ৎ────────────╯
+
+✧ 
 <p align="center">
 <a href="https://ibb.co/Zz4MBwLL"><img src="https://i.ibb.co/CKCHbX11/Untitled31-20260524204227.png" alt="Untitled31-20260524204227" border=" 
 <p align="center">
