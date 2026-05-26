@@ -11,17 +11,17 @@
 　🎀 __Ponytown.details__ 🎀  
 ╰────────────୨ৎ────────────╯
 
-| ⟡ Afk 24/7 ⟡ |
+|❘ ⟡ Afk 24/7 ⟡ ❘|
 
-| ⟡ I am semi-verbal and i'll tend to talk more if I know you or feel comfortable with you, though I may be quiet at first when we first meet. ⟡ |
+|❘ ⟡ I am semi-verbal and i'll tend to talk more if I know you or feel comfortable with you, though I may be quiet at first when we first meet. ⟡ ❘|
 
-| ⟡ Often found alone, but on occasion i'm with a friend or regiment ⟡ |
+|❘ ⟡ Often found alone, but on occasion i'm with a friend or regiment ⟡ ❘|
 
-| ⟡ Usually okay with Cuddles/Hides and interactions unless my tags {DNIUF/DNIUIF} says otherwise. W2I — I may be AFK or not paying attention to my screen. ⟡ |
+|❘ ⟡ Usually okay with Cuddles/Hides and interactions unless my tags {DNIUF/DNIUIF} says otherwise. W2I — I may be AFK or not paying attention to my screen. ⟡ ❘|
 
-| ⟡ I am a slow typer since I often delete, rewrite and adjust my sentences multiple times before I’m happy with them. ⟡ |
+|❘ ⟡ I am a slow typer since I often delete, rewrite and adjust my sentences multiple times before I’m happy with them. ⟡ ❘|
 
-| ⟡ DNI;; Harassers, NSFW jokes or content, countryhumans, LGBTQ+ hate, racism, discrimination of any kind, toxic behavior: I will block immediately. ⟡ |
+|❘ ⟡ DNI;; Harassers, NSFW jokes or content, countryhumans, LGBTQ+ hate, racism, discrimination of any kind, toxic behavior: I will block immediately. ⟡ ❘|
 
 
 
