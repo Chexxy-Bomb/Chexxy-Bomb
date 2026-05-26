@@ -13,15 +13,15 @@
 
 ✧ Afk 24/7
 
-✧ I am semi-verbal and would tend to talk more if i know/is comfy with you
+I am semi-verbal and tend to talk more if I know you or feel comfortable with you, though I may be quiet at first when we’re still getting to know each other.
 
 ✧ Often found alone, but on occasion i'm with a friend or regiment
 
-✧ Usually okay with quiet Cuddles {Hiding} interactions unless my tags {Dniuf/Dniuif} states otherwise
+✧ Usually okay with Cuddles/Hides and interactions unless my tags {DNIUF/DNIUIF} says otherwise. W2I — I may be AFK or not paying attention to my screen.
 
-✧ i am a slow typer since i tend to delete/re-do my sentences.
+✧ I am a slow typer since I often delete, rewrite, and adjust my sentences multiple times before I’m happy with them.
 
-✧ DNI;; Harassers, Nsfw jokes {Nsfw anything really}, Country humans, LGBTQ+ hate/racism. i would block immediately 
+✧ DNI;; Harassers, NSFW jokes or content, countryhumans, LGBTQ+ hate, racism, discrimination of any kind, toxic behavior: I will block immediately. 
 
 <img  src="https://i.ibb.co/7NtPfx6f/Untitled36-20260524225104.png"  width="600" height="50">
 </p>
@@ -29,7 +29,7 @@
 <div align="center">
 
 ╭────────────୨ৎ────────────╮  
-　🪽 __Ponytown.details__ 🪽  
+　🪽 __Small details__ 🪽  
 ╰────────────୨ৎ────────────╯
 
 ✧ 
