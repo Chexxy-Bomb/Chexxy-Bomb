@@ -13,7 +13,7 @@
 
 ✧ Afk 24/7
 
-I am semi-verbal and i'll tend to talk more if I know you or feel comfortable with you, though I may be quiet at first when we’re still getting to know each other.
+I am semi-verbal and i'll tend to talk more if I know you or feel comfortable with you, though I may be quiet at first when we first meet.
 
 ✧ Often found alone, but on occasion i'm with a friend or regiment
 
