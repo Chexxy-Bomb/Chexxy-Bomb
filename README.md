@@ -46,6 +46,8 @@
 
 |❘ ⟡ I am a slow typer since I often delete, rewrite and adjust my sentences multiple times before I’m happy with them. ⟡ ❘|
 
+|❘ ⟡ I have crowd/cover discomfort, so I may move away or hide behind someone ⟡ ❘|
+
 |❘ ⟡ DNI;; Harassers, NSFW jokes or content, countryhumans, LGBTQ+ hate, racism, discrimination of any kind, toxic behavior: I will block immediately. ⟡ ❘|
 
 <p align="center">
