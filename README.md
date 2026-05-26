@@ -44,7 +44,7 @@
 
 |❘ ⟡ Usually okay with Cuddles/Hides and interactions unless my tags {DNIUF/DNIUIF} says otherwise. W2I — I may be AFK or not paying attention to my screen. ⟡ ❘|
 
-|❘ ⟡ I am a slow typer since I often delete, rewrite and adjust my sentences multiple times before I’m happy with them. ⟡ ❘|
+|❘ ⟡ I am a slow typer since I often delete, rewrite my sentences multiple times before I’m satisfied with them. ⟡ ❘|
 
 |❘ ⟡ I have crowd/cover discomfort, so I may move away or hide behind someone ⟡ ❘|
 
